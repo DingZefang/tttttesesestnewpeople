@@ -1,10 +1,10 @@
 ---
 title: Man Utd boss Mourinho Liverpool never tested De Gea; where was Pogba
 date: 2018-05-16 11:54:13
-category: Football News
+cover_image: ./content/images/11.jpg
 ---
 
-![Football News](https://www.webhomelibrary.com/content/images/2.jpg)
+
 
 Manchester United boss Jose Mourinho claimed Liverpool never tested David de Gea on the second-half of Saturday's 2-1 win.
 
