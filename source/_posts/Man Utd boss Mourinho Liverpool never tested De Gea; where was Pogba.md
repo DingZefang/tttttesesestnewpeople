@@ -1,19 +1,25 @@
 ---
-title: Man Utd boss Mourinho Liverpool never tested De Gea; where was Pogba
+title: Filip Sedic | only way forward is through innovating 
 date: 2018-05-16 11:54:13
 cover_image: ./content/images/11.jpg
 ---
 
+# Filip Sedic
+
+### Inventor & Founder of FOREO
+#### Bosnian-born Swedish
+##### UNIVERSITY OF ZAGREB/SVEUCILISTE U ZAGREBU · 1994
+##### BEng, Engineering
+##### Owner of 200 international patents, winning more than 150 product design awards globally.
+
+________
 
 
-Manchester United boss Jose Mourinho claimed Liverpool never tested David de Gea on the second-half of Saturday's 2-1 win.
+Back in 2012, my wife Ivana was using a facial cleaner that was very popular in the market and complained to me that her face condition became worst with the cleaner. It was using a replacement brush head and looking at it, I was pretty sure that the brush accumulates more dirt and bacteria than a normal set of hands.
+I looked for alternative in the market but could not find one. We decided to design one ourselves. We know that woman’s facial skin is super tender and delicate so we decided to use medical grade silicon based material instead which is anti-bacterial and perfectly safe. We want the product to have a simplistic look but fully functional. 
+![Filip Sedic and Ivana](/content/images/12.jpg)
 
-Marcus Rashford hit a first-half double to create the gain, though Liverpool dominated following the break after an Eric Bailly own goal let them back into the game.
-
-Mourinho reasoned afterwards: "We were quite aggressive in the initially half, we wished to have control of the game, spaces for transition and make an effort to exploit - certainly not weaknesses - but points where the opponent is certainly not so good.
-
-"The second one half it was certainly not our intention to be as defensive as we had been
-
-Liverpool pushed us back but We don't remember the probabilities that require David de Gea to make the goal safe and sound. I don't bear in mind a dangerous situation to your goal. It was control by them getting the ball and control by us without the ball. I believe we deserved the three details."""
-
-On Paul Pogba's absence, he added: "He was injured in the last minute of the previous training session before the game. Incredible. EASILY finished working out session about a minute before he would have been OK."
+Ever since establishing FOREO in 2013, Sedic, a Bosnian-born Swede, has been active in all aspects of the now multinational brand. In particular, this consummate ideas man plays a pivotal role in product development, heading up a team of R&D professionals collectively known as the FOREO Institute. Although the name may conjure images of a centralized, secretive laboratory, the brand’s technical experts are based across no fewer than ten countries. Why? Because FOREO is for everyone, and wellbeing knows no borders! 
+![Filip Sedic](/content/images/13.jpg)
+Sweden-based FOREO is the world’s fastest growing beauty-tech brand. Our approach is a bold one: we don’t just improve existing designs; we tear them down completely and restart from the ground up - ensuring the best solutions are not reserved for the wealthy few. That’s also why we’re called FOREO, short for “For Every One.” We create groundbreaking, accessible solutions that promote self-confidence for all: when you feel good, you look good - and our mission is complete.
+FOREO’s product is all about imagination, more imagination and then innovation. Customer experience is very core to us. That experience starts from a good design with groundbreaking technology. We design products with our customers in mind.
