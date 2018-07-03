@@ -1,6 +1,6 @@
 ---
 title: Filip Sedic | only way forward is through innovating 
-date: 2018-05-16 11:54:13
+date: 2018-07-01 11:54:13
 cover_image: ./content/images/11.jpg
 ---
 
